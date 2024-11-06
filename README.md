@@ -28,4 +28,3 @@ Feel free to reach out! Whether it's for collaboration, discussions on tech, or 
 
 ### 🌱 "Always Learning, Always Growing!" 🌱
 
-![OpBento](https://firebasestorage.googleapis.com/v0/b/smartkaksha-fe32c.appspot.com/o/opbento%2Fanirbanowncb702.png?alt=media)
